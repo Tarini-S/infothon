@@ -1,0 +1,1 @@
+This project is about hyper local delivarys fostering seamless connections between local business and customer in the same neighbourhood.secure payment gatway to enhance overall hyper local delivaries.
